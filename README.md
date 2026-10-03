@@ -1,0 +1,1 @@
+# earthquake.ssgpt6.com
